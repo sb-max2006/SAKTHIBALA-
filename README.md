@@ -1,2 +1,0 @@
-# SAKTHIBALA-
-Tamil ai coding 
